@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-🏢 Business Administration & 💻 Software
+Second Account
